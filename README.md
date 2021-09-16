@@ -1,1 +1,1 @@
-"# Rymbayeva Anelya, 20B030299"
+# Rymbayeva Anelya, 20B030299
